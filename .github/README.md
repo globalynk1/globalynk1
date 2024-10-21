@@ -1,2 +1,11 @@
 # Globalynk-1
-Links
+Creating links.
+@hadmars
+@hadmars_
+@globalync
+@globalynk
+@engelbergmedia
+@global1
+Chad Rowan Marshall
+https://globalync.net
+Globalync.
